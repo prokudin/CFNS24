@@ -3,3 +3,5 @@ Lectures at the 2024 Center for Frontiers in Nuclear Science (CFNS) Summer Schoo
 
 https://indico.cfnssbu.physics.sunysb.edu/event/111/
 
+Email me at prokudin @ jlab.org
+
